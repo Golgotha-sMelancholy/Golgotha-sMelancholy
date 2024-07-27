@@ -1,4 +1,11 @@
-## Hi there 👋
+## I can't understand why (I can't understand why)
+# You leave your reasons for fear
+## I can't understand why (I can't understand why)
+# You hide from hearting yourself
+## I can't understand why (I can't understand why)
+# You lie to avoid them who help you
+## I can't understand why (I can't understand why)
+## You think the best is to escape...
 
 <!--
 **Golgotha-sMelancholy/Golgotha-sMelancholy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
